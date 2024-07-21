@@ -1,0 +1,1 @@
+# Hello! I'm Paridhi Dua. Welcome to my GitHub profile. 
